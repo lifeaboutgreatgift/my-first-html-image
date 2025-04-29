@@ -1,1 +1,1 @@
-![Alt text](quote.jpg)
+
